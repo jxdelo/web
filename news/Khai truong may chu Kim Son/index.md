@@ -17,6 +17,7 @@ Cùng nhau đón chờ và tham gia máy chủ mới ngay để có thể xưng 
 ⚡Thay mặt BQT rất mong được sự ủng hộ của toạn bộ Nhân Sĩ tham gia và đồng hành cùng JxDelo Mobile
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
+
 Web:  jxdelo.com
 
 Link group: https://www.facebook.com/groups/2704726029651512
