@@ -19,6 +19,7 @@ Ngoài ra, top1 sever vào 24h ngày 09/7/2023 sẽ được tạc tượng tạ
 ⚡Thay mặt BQT rất mong được sự ủng hộ của toạn bộ Nhân Sĩ tham gia và đồng hành cùng JxDelo Mobile
 
 ➖➖➖➖➖➖➖➖➖➖➖➖➖➖➖
+
 Web:  jxdelo.com
 
 Link group: https://www.facebook.com/groups/2704726029651512
