@@ -4,11 +4,17 @@
 
 ⏰ Thời gian kết thúc: Tới khi toàn bộ phần thưởng được trao
 
+💥 Tổng Kết Sau 1 Tháng Đua Top bắt đầu  từ ngày 10/1 đến hết ngày 10/2
+
+- Top 1: nhận được 3k xu
+- - Top 2-3-4: nhận được 2k xu
+- Top 5-10: nhận được 1k xu
+
 💥Phần thưởng đua top lever 💥
 
-- Nhân vật đạt cấp 100 đầu tiên: Nhận Rương bí kíp (mở nhận được 01 bí kíp random)
-- Nhân vật đạt cấp 110 đầu tiên: 3 Thủy tinh + 6 THBT
-- Nhân vật đạt cấp 120 đầu tiên: Ngựa Chiếu dạ
+- Nhân vật đạt cấp 100 đầu tiên:  3 Thủy tinh + 6 THBT
+- Nhân vật đạt cấp 110 đầu tiên: 1k xu
+- Nhân vật đạt cấp 120 đầu tiên: Ngựa Phi Vân
 - Nhân vật đạt cấp 130 đầu tiên:  3 TTK
 - Nhân vật đạt cấp 140 đầu tiên: 3 VLMT
 - Nhân vật đạt đạt cấp 150 đầu tiên: Chiến mã Bôn Tiêu
@@ -24,6 +30,8 @@ Web:  jxdelo.com
 
 Link group: https://www.facebook.com/groups/2704726029651512
 
-link zalo:  https://zalo.me/g/zjpvcf231
+Group Hỗ Trợ zalo:  https://zalo.me/g/zjpvcf231
+
+Group Mua Bán và Thảo Luận Zalo: https://zalo.me/g/rwvurd647
 
 ⚡JxDelo - Võ Lâm Truyền Kỳ Mobile - Do  Công ty cổ phần công nghệ Delo Phát Hành
